@@ -4,6 +4,8 @@ Disusun Oleh :
 - Ronaldo Damianus Parulian Silitonga (211401057)
 - Ramadhana Hasriansyah Manurung (211401006)
 
+Link Video Penjelasan : https://www.youtube.com/watch?v=7vrfQFhfp5M
+
 Screenshot Web
 
 Tampilan Awal
